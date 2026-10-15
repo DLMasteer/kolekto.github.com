@@ -1,1 +1,0 @@
-# kolekto.github.com
